@@ -10,4 +10,4 @@ Todos:
 
 • Dataset : https://bit.ly/3kXTdox
 
-• Video : 
+• Video : https://www.linkedin.com/posts/reshama-gurav-a08b651ab_gripmay21-thesparksfoundation-datascience-activity-6799024799105593344-cJw5 
